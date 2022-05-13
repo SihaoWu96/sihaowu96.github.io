@@ -1,3 +1,3 @@
-## Liver Bird Tech 梨花埠 &#8226 伯德
+## Liver Bird Tech 梨花埠 - 伯德
 
 
